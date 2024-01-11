@@ -1,1 +1,1 @@
-call the police about the lost of card.
+Tell the police about the lost of card.
