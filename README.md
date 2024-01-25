@@ -1,1 +1,1 @@
-book J-1 on HK at 29 Jan, waiting for DS-2019.
+waiting for DS-2019, and then book a visa.
