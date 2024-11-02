@@ -1,3 +1,2 @@
-Sent that email to Technion staffs.
-
+Removing the professor title of Yigal Achmon.
 
